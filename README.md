@@ -1,1 +1,0 @@
-# projeto-Banco-part-2-trio
